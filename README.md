@@ -1,0 +1,1 @@
+# Galoso_RESUMELINK
